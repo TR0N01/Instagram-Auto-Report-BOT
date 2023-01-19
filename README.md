@@ -1,4 +1,3 @@
-Instagram Auto Report (By TroyDen) 
        <br>
        
 ╭━━╴♻️ Upgrade 19.01.2023
