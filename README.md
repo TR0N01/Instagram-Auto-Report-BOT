@@ -1,3 +1,6 @@
+🔥 Instagram Auto Report (By SniperSpy) 🔥 
+       <br>
+       
 ╭━━╴♻️ Upgrade 06.02.2023
 <br>
 ├  All users accounts is Update + Proxy.
@@ -10,12 +13,10 @@
 <br>
 
  
- Telegram: 👉  https://t.me/troy_den
- 
- Video:     https://t.me/InstagramReport1
+ Telegram: 👉  https://t.me/sniper_spy
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img src="https://i.postimg.cc/nzNpbbW8/troyden.jpg" alt="Trulli" width="239" height="232">
-<img src="https://i.postimg.cc/5NB1GrqG/troyden2.jpg" alt="Trulli" width="239" height="232">
+<img src="https://i.postimg.cc/Xvn3zSFy/sniepr1.jpg" alt="Trulli" width="239" height="232">
+<img src="https://i.postimg.cc/Y2v43YtB/sniper2.jpg" alt="Trulli" width="239" height="232">
